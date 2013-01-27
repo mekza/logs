@@ -22,7 +22,7 @@ Now, let's leave the past where it is and speak about the present.
 
 I have many friends in Berlin [@paraboul](http://twitter.com/paraboul), [@psish](http://twitter.com/psish), [@un_geek](http://twitter.com/un_geek), and more. 
 
-I came back to Berlin on December 3rd, 2011., i needed a break with cold-and-boring Paris so I took a cheap round-trip ticket on Easyjet's website just for 3 days. After a 1hr flight I took a cab to go to Friedrichshain the place where my brü live. FYI, between December 2011 and January 2013, i was in Berlin 11 times.
+I came back to Berlin on December 3rd, 2011., I needed a break with cold-and-boring Paris so I took a cheap round-trip ticket on Easyjet's website just for 3 days. After a 1hr flight I took a cab to go to Friedrichshain the place where my brü live. FYI, between December 2011 and January 2013, I went to Berlin 11 times.
 
 
 ## Friedrichshain
