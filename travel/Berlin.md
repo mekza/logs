@@ -29,7 +29,7 @@ I came back to Berlin on December 3rd, 2011., I needed a break with cold-and-bor
 
 ![friedrichshain](https://raw.github.com/mekza/logs/master/travel/images/berlin/kaisers.jpg)
 
-Friedrichshain is a part of Berlin located in the East side, you can live there like a Berliner and for me the best place for newbies. I spent my time in bars, clubs, bars, clubs, bed, clubs, bars (infinite loop).
+Friedrichshain is a part of Berlin located on the East side, you can live there like a Berliner and for me the best place for newbies. I spent my time in bars, clubs, bars, clubs, bed, clubs, bars (infinite loop).
 
 
 [@paraboul](http://twitter.com/paraboul), [@psish](http://twitter.com/psish) and [@un_geek](http://twitter.com/un_geek) rent a huge flat (170m2) in Boxhagener Platz near from _Simon-Dach Straße_ aka street of vice (~~too~~ many bars, restaurants, dorüm, night shops, etc.). There are also near from Berghain, Renate, Kater Holtzig, and all famous clubs in Berlin.
