@@ -27,7 +27,7 @@ I came back to Berlin on December 3rd, 2011., i needed a break with cold-and-bor
 
 ## Friedrichshain
 
-![friedrichshain](images/berlin/kaisers.jpg)
+![friedrichshain](https://raw.github.com/mekza/logs/master/travel/images/berlin/kaisers.jpg)
 
 Friedrichshain is a part of Berlin located in the East side, you can live there like a Berliner and for me the best place for newbies. I spent my time in bars, clubs, bars, clubs, bed, clubs, bars (infinite loop).
 
