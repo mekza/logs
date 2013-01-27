@@ -1,4 +1,3 @@
-Logs
-====
+# Logs
 
-Welcome to my life logs. It's just some words.
+Welcome to my logs. It's just some words. Written in Markdown and fr-english.
