@@ -64,7 +64,7 @@ If you love Spanish cuisine, you have to go to [Bar Raval](http://www.barraval.d
 
 ### Görlitzer Park
 
-As known as Görli.
+Also known as Görli.
 
 Daytime, über-cool park to chill (on summer). Nighttime, good place to buy some weed.
 
