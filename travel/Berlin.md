@@ -1,4 +1,4 @@
-# Berlin
+# Berlin (draft-2)
 
 ![Berlin](http://24.media.tumblr.com/tumblr_m8dwv5WeSN1qi7mwbo1_500.jpg)
 
@@ -32,7 +32,15 @@ I came back to Berlin on December 3rd, 2011., I needed a break with the cold-and
 Friedrichshain is a part of Berlin located on the East side, you can live there like a Berliner and for me the best place for newbies. I spent my time in bars, clubs, bars, clubs, bed, clubs, bars (infinite loop).
 
 
-[@paraboul](http://twitter.com/paraboul), [@psish](http://twitter.com/psish) and [@un_geek](http://twitter.com/un_geek) rent a huge flat (170m2) in Boxhagener Platz near from _Simon-Dach Straße_ aka street of vice (~~too~~ many bars, restaurants, dorüm, night shops, etc.). Also they are close to Berghain, Renate, Kater Holtzig, and all famous clubs in Berlin.
+[@paraboul](http://twitter.com/paraboul), [@psish](http://twitter.com/psish) and [@un_geek](http://twitter.com/un_geek) rent a huge flat (170m2) in Boxhagener Platz near from _Simon-Dach Straße_ aka street of vice (~~too~~ many bars, restaurants, dorüm, night shops, etc.). Also they are close to Berghain, Renate, Kater Holtzig, and all the famous clubs in Berlin.
+
+### Berghain
+
+## Ostkreuz
+
+### Salon - Zur Wilden Renate
+
+### Sisyphos
 
 ## Mitte
 
@@ -44,3 +52,22 @@ In german, Mitte means _the middle_ obviously this is the center of Berlin. In t
 
 Kreuzberg is like Friedrichshain. Many clubs, restaurants, etc. I made a foursquare's [list](https://foursquare.com/martinzack/list/berlin).
 
+### Bar Raval
+
+If you love Spanish cuisine, you have to go to [Bar Raval](http://www.barraval.de/). This place is **AWESOME**, the German superstar actor [Daniel Brühl](http://en.wikipedia.org/wiki/Daniel_Br%C3%BChl) owns this Tapas bar. Prices are cheaper than Paris but it's still a little expensive for Berlin (about 30€ / ppl with wine, we usually eat like big whales).
+
+![barraval](http://distilleryimage11.s3.amazonaws.com/8bcd51c656b811e291a022000a9f13ef_7.jpg)
+
+![chocolat](http://distilleryimage3.s3.amazonaws.com/0bf66ef856c011e2a61722000a1f9d6d_7.jpg)
+
+![yummy](http://distilleryimage11.s3.amazonaws.com/ea4b5eb8c22611e1989612313815112c_7.jpg)
+
+### Görlitzer Park
+
+As known as Görli.
+
+Daytime, über-cool park to chill (on summer). Nighttime, good place to buy some weed.
+
+![gorlitzer](http://distilleryimage3.s3.amazonaws.com/d8d111b2939d11e1989612313815112c_7.jpg)
+
+I took this picture on the 1st of May, in Berlin this day is the "Anti-Nazi" day. 
